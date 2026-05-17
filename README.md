@@ -281,6 +281,9 @@ trí trung tâm
 
 -Tìm phuơng án đúng cho câu: “Hiền tài là nguyên khí của quốc gia, nguyên khí thịnh thì thế nước mạnh, nguyên khí suy thì thế nước hèn và càng xuống thấp”. LỜI GHI TRÊN BIA CỦA VĂN MIẾU QUỐC TỬ GIÁM
 
+- Dân tộc và tôn giáo là mối quan hệ bện chứng
+  
+
 
 
 
