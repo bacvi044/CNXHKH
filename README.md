@@ -282,7 +282,32 @@ trí trung tâm
 -Tìm phuơng án đúng cho câu: “Hiền tài là nguyên khí của quốc gia, nguyên khí thịnh thì thế nước mạnh, nguyên khí suy thì thế nước hèn và càng xuống thấp”. LỜI GHI TRÊN BIA CỦA VĂN MIẾU QUỐC TỬ GIÁM
 
 - Dân tộc và tôn giáo là mối quan hệ bện chứng
-  
+
+- Ngày gia đình 28/6
+
+- Ngày doanh nhân 13/10
+
+- Dân tộc - Tộc người có 3 đặc trung
+
+- Nhà nước có 5 đặc trưng
+
+- TQ mở cửa cải cách 1978
+
+- Nhà nước XHCN đầu tiên 1917
+
+- 3 nguyên tắc giải quyết vấn đề dân tộc
+
+- 4 định nghĩa về XHCN
+
+- Phong trào hiến chương diễn ra trong 10 năm
+
+- Kết hôn hợp pháp điều 9 luật hôn nhân gia đình
+
+- Dân tộc quốc gia có 5 đặc trưng cơ bản
+
+-  Cương lĩnh xây dựng CNXH BỔ SUNG 2011 8 đặc trưng
+
+-  
 
 
 
