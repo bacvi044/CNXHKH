@@ -46,142 +46,142 @@
 
 -8.Các Mác (5/ 5/ 1818 – 14/ 3/ 1883) – người Đức – học luật
 
--Khái niệm chuyên chính vô sản được Các Mác dùng lần đầu tiên trong tác phẩm “Cương lĩnh Gô – ta”
++Khái niệm chuyên chính vô sản được Các Mác dùng lần đầu tiên trong tác phẩm “Cương lĩnh Gô – ta”
 
--“ Cương lĩnh Gô – ta”
++“ Cương lĩnh Gô – ta”
 
--“Quyền không bao giờ có thể ở một mức độ cao hơn chế độ kinh tế và sự phát triển văn hoá của xã hội do chế độ kinh tế đó 
++“Quyền không bao giờ có thể ở một mức độ cao hơn chế độ kinh tế và sự phát triển văn hoá của xã hội do chế độ kinh tế đó 
 quyết định”
 
--“Sự phát triển tự do của mọi người là điều kiện cho sự phát triển tự do của tất cả mọi người”
++“Sự phát triển tự do của mọi người là điều kiện cho sự phát triển tự do của tất cả mọi người”
 
--“thuốc phiện”
++“thuốc phiện”
 
--Chủ nghĩa duy vật lịch sử và Học thuyết giá trị thặng dư đã được C.  Mác phát triển và trình bày một cách có hệ thống trong tác phẩm: “(Bộ) Tư bản”
++Chủ nghĩa duy vật lịch sử và Học thuyết giá trị thặng dư đã được C.  Mác phát triển và trình bày một cách có hệ thống trong tác phẩm: “(Bộ) Tư bản”
 
--“Bộ tư bản” - Tác phẩm được Lê – nin đánh giá là tác phẩm chủ yếu và cơ bản trình bày CNXHKH
++“Bộ tư bản” - Tác phẩm được Lê – nin đánh giá là tác phẩm chủ yếu và cơ bản trình bày CNXHKH
 
--Người được Các – Mác coi là nhà tư tưởng vĩ đại nhất thời cổ đại: Aristot
++Người được Các – Mác coi là nhà tư tưởng vĩ đại nhất thời cổ đại: Aristot
 
--“Thời kì cải biến…chuyên chính”
++“Thời kì cải biến…chuyên chính”
 
--“Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”?
++“Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”?
 
--“Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
++“Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
 
 
--Tác phẩm “Tuyên ngôn Đảng Cộng sản”
++Tác phẩm “Tuyên ngôn Đảng Cộng sản”
 
 -Ăngghen (28/ 11/ 1820 – 5/ 8/ 1895) – người Đức – học kỹ thuật
 
--Lần đầu tiên Ph. Ăngghen nói chủ nghĩa Mác cấu thành bởi ba bộ phận trong tác phẩm: “Chống Đuyrinh”
++Lần đầu tiên Ph. Ăngghen nói chủ nghĩa Mác cấu thành bởi ba bộ phận trong tác phẩm: “Chống Đuyrinh”
 
--“Chống Đuyrinh” – được Lenin ca ngợi là bách khoa toàn thư thực sự của chủ nghĩa CS
++“Chống Đuyrinh” – được Lenin ca ngợi là bách khoa toàn thư thực sự của chủ nghĩa CS
 
--“Thực hiện sự nghiệp giải phóng thế giới ấy - đó là sứ mệnh lịch sử của giai cấp vô sản hiện đại”
++“Thực hiện sự nghiệp giải phóng thế giới ấy - đó là sứ mệnh lịch sử của giai cấp vô sản hiện đại”
 
--“Tất cả mọi tôn giáo chẳng qua chỉ là sự phản ánh hư ảo - vào trong đầu óc của con người - của những lực lượng ở bên ngoài chi phối cuộc sống hàng ngày của họ; chỉ là sự phản ánh trong đó những lực lượng ở trần thế đã mang hình thức những lực lượng siêu trần thế”
++“Tất cả mọi tôn giáo chẳng qua chỉ là sự phản ánh hư ảo - vào trong đầu óc của con người - của những lực lượng ở bên ngoài chi phối cuộc sống hàng ngày của họ; chỉ là sự phản ánh trong đó những lực lượng ở trần thế đã mang hình thức những lực lượng siêu trần thế”
 
--“Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”.
++“Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”.
 
--“Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
++“Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
 
--“Tôi coi sự phát triển của những hình thái kinh tế xã hội là một quá trình lịch sử tự nhiên”
++“Tôi coi sự phát triển của những hình thái kinh tế xã hội là một quá trình lịch sử tự nhiên”
 
--Tác phẩm “Nguồn gốc của gia đình, của chế độ tư hữu và của Nhà nước”
++Tác phẩm “Nguồn gốc của gia đình, của chế độ tư hữu và của Nhà nước”
 
--Tác phẩm “Tuyên ngôn Đảng Cộng sản”
++Tác phẩm “Tuyên ngôn Đảng Cộng sản”
 
 -Xanh Xi Mông
 
--Luận giải lý thuyết giai cấp và xung đột giai cấp
++Luận giải lý thuyết giai cấp và xung đột giai cấp
 
--Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
++Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
 
--Nửa vời
++Nửa vời
 
--Chủ nghĩa không tưởng phê phán Pháp
++Chủ nghĩa không tưởng phê phán Pháp
 
 
 -Phurie
 
--Nền sản xuất tư bản chủ nghĩa vô chính phủ
++Nền sản xuất tư bản chủ nghĩa vô chính phủ
 
--Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
++Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
 
--Người làm nhiều ăn ít, người làm ít ăn nhiều
++Người làm nhiều ăn ít, người làm ít ăn nhiều
 
--Chủ nghĩa không tưởng phê phán Pháp
++Chủ nghĩa không tưởng phê phán Pháp
 
--Nghèo khổ sinh ra từ sự thừa thãi
++Nghèo khổ sinh ra từ sự thừa thãi
 
--Nêu tư tưởng: Trình độ giải phóng xã hội được đo bằng trình độ giải phóng phụ nữ
++Nêu tư tưởng: Trình độ giải phóng xã hội được đo bằng trình độ giải phóng phụ nữ
 
--Được Ăngghen nhận xét là “có tầm mắt rộng thiên tài”
++Được Ăngghen nhận xét là “có tầm mắt rộng thiên tài”
 
--Được Ăngghen đánh giá là “nắm phép biện chứng một cách tài tình như Hê – ghen là người đương thời với ông”?
++Được Ăngghen đánh giá là “nắm phép biện chứng một cách tài tình như Hê – ghen là người đương thời với ông”?
 
--Chia lịch sử phát triển của nhân loại thành các giai đoạn: mông muội, dã man, gia trưởng và văn minh
++Chia lịch sử phát triển của nhân loại thành các giai đoạn: mông muội, dã man, gia trưởng và văn minh
 
 -Ôoen
 
--Thực nghiệm xã hội cộng sản trong lòng xã hội tư bản
++Thực nghiệm xã hội cộng sản trong lòng xã hội tư bản
 
--Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
++Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
 
--Bị phá sản trong khi thực nghiệm tư tưởng CSCN của mình
++Bị phá sản trong khi thực nghiệm tư tưởng CSCN của mình
 
--Chủ nghĩa không tưởng phê phán Pháp
++Chủ nghĩa không tưởng phê phán Pháp
 
--Được Ăng – ghen nhận xét “Mọi phong trào xã hội, mọi thành tựu thực sự đã diễn ra ở Anh vì lợi ích của công nhân đều gắn 
++Được Ăng – ghen nhận xét “Mọi phong trào xã hội, mọi thành tựu thực sự đã diễn ra ở Anh vì lợi ích của công nhân đều gắn 
 với tên tuổi của ông”
 
 -Tô Mát Morơ
 
--Nhà tư tưởng XHCN tiêu biểu TK 16
++Nhà tư tưởng XHCN tiêu biểu TK 16
 
--“Không tưởng” ( Utôpi )
++“Không tưởng” ( Utôpi )
 
--Khái quát quá trình tích lũy tư bản là quá trình “Cừu ăn thịt người”
++Khái quát quá trình tích lũy tư bản là quá trình “Cừu ăn thịt người”
 
--Người mở đầu các trào lưu xã hội chủ nghĩa và cộng sản chủ nghĩa thời cận đại
++Người mở đầu các trào lưu xã hội chủ nghĩa và cộng sản chủ nghĩa thời cận đại
 
 
 -Lênin (22/ 4/ 1870 – 21/ 1/ 1924)
 
--Người đặt vấn đề sử dụng và học tập các kinh nghiệm tổ chức và quản lý kinh tế của chủ nghĩa tư bản để cải tạo nền kinh tế tiểu nông lạc hậu
++Người đặt vấn đề sử dụng và học tập các kinh nghiệm tổ chức và quản lý kinh tế của chủ nghĩa tư bản để cải tạo nền kinh tế tiểu nông lạc hậu
 
--“CNXH là sự phản kháng và đấu tranh chống sự bóc lột người lao động, một cuộc đấu tranh nhằm hoàn toàn xóa bỏ sự bóc lột”
++“CNXH là sự phản kháng và đấu tranh chống sự bóc lột người lao động, một cuộc đấu tranh nhằm hoàn toàn xóa bỏ sự bóc lột”
 Định nghĩa về giai cấp trong “ Sáng kiến vĩ đại “
 
--“Sáng kiến vĩ đại”
++“Sáng kiến vĩ đại”
 
--“Chủ nghĩa xã hội khoa học tức là chủ nghĩa Mác”
++“Chủ nghĩa xã hội khoa học tức là chủ nghĩa Mác”
 
--“Chủ nghĩa đế quốc là sự chuẩn bị vật chất đầy đủ nhất cho cách mạng vô sản”
++“Chủ nghĩa đế quốc là sự chuẩn bị vật chất đầy đủ nhất cho cách mạng vô sản”
 
--Tác phẩm nào được Lênin coi là cuốn bách khoa toàn thư thực sự của chủ nghĩa cộng sản? “Chống Đuyrinh”
--“Đồng ca – Đơn ca”
++Tác phẩm nào được Lênin coi là cuốn bách khoa toàn thư thực sự của chủ nghĩa cộng sản? “Chống Đuyrinh”
 
--là người đầu tiên đưa ra khái niệm cách mạng dân chủ tư sản kiểu mới
++“Đồng ca – Đơn ca”
 
--“Chuyên chính…Liên minh…”
++là người đầu tiên đưa ra khái niệm cách mạng dân chủ tư sản kiểu mới
 
--“Chế độ dân chủ vô sản so với bất cứ chế độ dân chủ tư sản nào cũng dân chủ gấp triệu lần”
++“Chuyên chính…Liên minh…”
 
--“Vô sản tất cả các nước và các dân tộc bị áp bức, đoàn kết lại”
++“Chế độ dân chủ vô sản so với bất cứ chế độ dân chủ tư sản nào cũng dân chủ gấp triệu lần”
 
--Tác phẩm được Lê – nin đánh giá là tác phẩm chủ yếu và cơ bản trình bày CNXHKH: “Tư bản” (Các Mác)
++“Vô sản tất cả các nước và các dân tộc bị áp bức, đoàn kết lại”
+
++Tác phẩm được Lê – nin đánh giá là tác phẩm chủ yếu và cơ bản trình bày CNXHKH: “Tư bản” (Các Mác)
 
 
 -Grắc – cơ Ba – bớp
 
--Chủ trương thiết lập nền “ Chuyên chính cách mạng của những người lao động”
++Chủ trương thiết lập nền “ Chuyên chính cách mạng của những người lao động”
 
--“Tuyên ngôn của những người bình dân”
++“Tuyên ngôn của những người bình dân”
 
--Đặt vấn đề đấu tranh cho CNXH với tính cách là một phong trào thực tiễn (Phong trào hiện thực)
-
++Đặt vấn đề đấu tranh cho CNXH với tính cách là một phong trào thực tiễn (Phong trào hiện thực)
 
 -Tô – ma – đô Campanenla – “Thành phố mặt trời” – Người mơ ước xây dựng thành phố mặt trời, trong đó không có nạn thất nghiệp, không có kẻ lười biếng, ai cũng lao động
 
