@@ -307,10 +307,15 @@ trí trung tâm
 
 -  Cương lĩnh xây dựng CNXH BỔ SUNG 2011 8 đặc trưng
 
-- Giai cấp công nhân 2 đặc trưng phương diện 
+- Giai cấp công nhân 2 đặc trưng phương diện
 
+- Quá độ lên CNXH vn 4/1975 nước 1954 
 
+- TP đầu các-ănggeh gd thần thánh
 
+- Đặc trưng cơ bản CNXH 
+
+- CNXHKH 2 
 
 
 
