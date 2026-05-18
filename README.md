@@ -1,4 +1,4 @@
-<img width="867" height="410" alt="image" src="https://github.com/user-attachments/assets/1f811ddb-0e09-41a4-950d-bc34e5663b15" /># CNXHKH
+
 
 -'chìa khóa vạn năng' để giải quyết mọi khó khăn trong quá trình xây dựng chủ nghĩa xã hội - Thực hành dân chủ
 
