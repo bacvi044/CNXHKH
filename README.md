@@ -317,7 +317,29 @@ trí trung tâm
 
 - CNXHKH 2 
 
+- 1991 - 6 - 2011 - 8
 
+-Một: Đẩy mạnh công nghiệp hóa, hiện đại hóa đất nước gắn với phát triểnkinh tế tri thức, bảo vệ tài nguyên môi trường.
+
+-Hai: Phát triển kinh tế thị trường định hướng XHCN.
+
+-Ba Xây dựng nền văn hóa tiên tiến,đậm đà bản sắc dân tộc; nâng cao đờisống con người,
+
+thực hiện tiến bộ, công bằng xã hội.
+
+-Năm Thực hiện đường lối đối ngoại độc lập, tự chủ, hòa bình, hữu nghị,hợp tác và phát triển; chủ động và tích cực hội nhập quốc tế. 
+
+-Sáu Xây dựng nền dân chủ XHCN, thực hiện đại đoàn kết dân tộc. 
+
+-Bảy Xây dựng nhà nước pháp quyền XHCN của dân, do dân và vì dân.
+
+-  Tám Xây dựng Đảng trong sạch, vững mạnh
+
+- 43 tổ chức, 16 tôn giáo
+
+- 19945 DCCH - 1976.
+
+- 
 
 
 
